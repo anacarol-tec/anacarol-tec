@@ -6,5 +6,5 @@ Me chamo Ana Carolina
 
 - Aqui irei publicar alguns de meus projetos e usarei como forma de me organizar em relação à isso.
 
-![](https://tenor.com/bLaBM.gif)
+
 
